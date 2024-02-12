@@ -30,4 +30,4 @@ Huge appreciation to all contributors and libraries that have contributed to the
 
 📧 **Contact**
 
-Have questions or ideas? Reach out to devallabhaskarganesh@gmail.com.
+Have questions or ideas? Reach out to adithyanagendragummadi2004@gmail.com.
